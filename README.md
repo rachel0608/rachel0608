@@ -4,4 +4,4 @@
 😄 Pronouns: she/her \
 👯 I’m looking to collaborate on open-source projects \
 📫 Reach me at: [LinkedIn](https://www.linkedin.com/in/rachel-nguyen-502a84152/) | [Email](khanhchi121@gmail.com) \
-💼 Check out my pinned projects below! \
+💼 Check out my pinned projects below! 
